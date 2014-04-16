@@ -10,5 +10,5 @@
 
 http://pan.baidu.com/s/1d96oA
 
-提出密码： icfk
+提取密码： icfk
 
